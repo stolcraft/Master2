@@ -1,0 +1,1 @@
+Le médecin consulte un patient
